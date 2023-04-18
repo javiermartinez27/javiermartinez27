@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @javiermartinez27
-- ✨ Currently working at @Examedi
+- ✨ Currently open to work.
 - 👀 I’m interested in videogames and making intersting apps.
 - 📫 How to reach me: martinezsabathier@gmail.com
 <!---
