@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @javiermartinez27
-- ✨ Currently open to work.
+- ✨ Currently working as a Full-stack developer on The Startup Builders
 - 👀 I’m interested in videogames and making intersting apps.
 - 📫 How to reach me: martinezsabathier@gmail.com
 <!---
